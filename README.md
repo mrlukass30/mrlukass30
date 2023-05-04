@@ -1,6 +1,6 @@
 ### Hi there 👋, my name is Mr.Lukass
 #### Mastering the Art of Programing: Strategies for Success
-![Mastering the Art of Programing: Strategies for Success](https://img.favpng.com/1/12/22/programming-language-computer-programming-programmer-word-png-favpng-QTWdfWjVd5je8gjQ0b1PLKmpc.jpg)
+![Mastering the Art of Programing: Strategies for Success](https://img.freepik.com/free-vector/programmer-typographic-header-idea-coding-testing-writing-program-using-internet-different-software-website-development-optimization-isolated-vector-illustration_613284-970.jpg)
 
 Hey! It's the law of attraction, and it's key to unlocking potential. To make it work for you, first eliminate negative thinking. 
 
